@@ -1,0 +1,2 @@
+# MyAfricaProject
+As a beginner 
